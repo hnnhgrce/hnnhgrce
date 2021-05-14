@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @hnnhgrce
 - 👀 I’m interested in Anime 
 - 🌱 I’m currently learning Japanese 
-- 💞️ I’m looking to collaborate on Content Creator 
+- 💞️ I’m looking to collaborate on Content Creation  
 - 📫 How to reach me hannahgracediwata@gmail.com
 
 <!---
